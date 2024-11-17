@@ -1,0 +1,1 @@
+Buenas tardes Y muchísimas gracias por visitar mi repositorio de GitHub esta página es específicamente para mi proyecto escolar de la materia español primero que nada para ingresar a la página debe hacer clic en el documento llamado index.html sin más que decir espero disfrute la página web muchísimas gracias por su atención
